@@ -1,4 +1,4 @@
-### Party Supplies
+### Party Items
 
 - cups
 - paper towels
