@@ -6,6 +6,5 @@
 
 ### Menu
 
-- Squab
 - Kale
 - Crepes
