@@ -5,5 +5,5 @@
 - The Blakement
 
 - Mexico
-- Any Beach Anywhere
+- All the Beaches Everywhere
 - Never Alaska
